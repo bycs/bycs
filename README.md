@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+[Telegram](https://t.me/DD506)<br />
+[LinkedIn](https://www.linkedin.com/in/stas-cartoon-b8885423a/)<br />
+
 <!--
 **bycs/bycs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
